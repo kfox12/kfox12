@@ -1,2 +1,2 @@
 Kevin Fox
-University of Notre Dame '28
+, University of Notre Dame '28
