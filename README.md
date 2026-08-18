@@ -1,2 +1,1 @@
-Kevin Fox -
-University of Notre Dame '28
+Kevin Fox - Junior Computer Science Student @ University of Notre Dame
